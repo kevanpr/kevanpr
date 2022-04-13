@@ -1,5 +1,5 @@
 - 👋 Allo, I'm @kevanpr
-- 👀 There are a lot of things that interests me. 
+- 👀 There are a lot of things that interest me. 
 - 🌱 Always learning. 
 - 📫 Reach me at gracellepontanilla@gmail.com
 
