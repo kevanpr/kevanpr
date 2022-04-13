@@ -1,6 +1,6 @@
 - 👋 Allo, I'm @kevanpr
-- 👀 I'm still finding what interests me the most. 
-- 🌱 I’m currently learning. 
+- 👀 There are a lot of things that interests me. 
+- 🌱 Always learning. 
 - 📫 Reach me at gracellepontanilla@gmail.com
 
 <!---
